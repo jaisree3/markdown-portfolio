@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+BTS is my life
+I am a multifandom
+I love kpop
